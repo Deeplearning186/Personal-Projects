@@ -1,2 +1,2 @@
 # Personal-Projects
-All my personal projects are showcased here
+All my personal projects are showcased here!
